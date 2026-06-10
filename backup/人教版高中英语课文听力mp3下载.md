@@ -2,7 +2,7 @@
 
 试听地址（用手机微信扫一扫二维码）：
 
-<!-- Failed to upload "mmexport1628312648573.png" -->
+<img width="950" height="1296" alt="Image" src="https://github.com/user-attachments/assets/9090f000-d717-424a-a030-6c4158721a2d" />
 
 教材目录：
 必修一
