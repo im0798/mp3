@@ -1,8 +1,8 @@
 新版高中英语必修123册、选修1234册课文音频MP3下载，需要的可加微信yingyump3，购买，5元/册。
 
-试听地址（用手机微信扫一扫二维码）：
+请用手机微信扫一扫二维码添加站长获取试听地址：
 
-<img width="950" height="1296" alt="Image" src="https://github.com/user-attachments/assets/9090f000-d717-424a-a030-6c4158721a2d" />
+<img width="95" height="129" alt="Image" src="https://github.com/user-attachments/assets/9090f000-d717-424a-a030-6c4158721a2d" />
 
 教材目录：
 必修一
